@@ -15,7 +15,5 @@ Even small notes help track my progress.
 ---
 
 ✨ Web3 is about experimentation and discovery.
-dd
-1
-ert
+dfdffffffffff
 
